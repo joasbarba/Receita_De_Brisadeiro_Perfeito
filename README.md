@@ -1,5 +1,6 @@
 # Receita_De_Brisadeiro_Perfeito
 Referência: https://pt.wikihow.com/Fazer-Manteiga-de-Maconha
+
 A Maior diferença do link para o procedimento usado é que a planta estará em banho maria com a manteiga derretida, ao invés de ser utilizado cozimento direto, o que pode levar ao superaquecimento.
 
 
